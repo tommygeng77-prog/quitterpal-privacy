@@ -1,0 +1,1 @@
+# quitterpal-privacy
